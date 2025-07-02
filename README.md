@@ -4,6 +4,7 @@
 
 # **ONLINE-FIX GAMES**:
 
+*password on all folders*
 
 > **[Backrooms Rec](https://drive.google.com/file/d/1Ur6oM1Ey3FA7tbZLCxtgIVWJ1viWb7aU/view?usp=drive_link)**
 
