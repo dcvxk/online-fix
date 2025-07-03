@@ -8,7 +8,7 @@
 
 > **[Backrooms Rec](https://drive.google.com/file/d/1Ur6oM1Ey3FA7tbZLCxtgIVWJ1viWb7aU/view?usp=drive_link)**
 
-> **phasmophobia:** 
+> **[Schedule 1](https://store4.gofile.io/download/web/d2e11e7b-05ea-49a1-85bd-1480d14e8c5e/ScheduleI_Fix_Repair_Steam_V2_Generic.rar)**
 
 > **phasmophobia:** 
 
